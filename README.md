@@ -1,5 +1,6 @@
-### Hello There,
-I have the High Ground.
+
+Every person different but dealing with their own selfish unique shits same behaviors, content with anything and everything involving so many complexities with respect to a single continuous point in space-time.
+Self aware or not or maybe semi aware with a unique combinations of neurons in same quantity and connections as primitive humans like any complex life organism somewhere in infinite universe against the eternity.
 
 <!--
 **ajangir/ajangir** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
